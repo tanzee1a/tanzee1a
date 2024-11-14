@@ -1,4 +1,4 @@
-Hi, I’m Tanzeela! 🌱< br / >
+Hi, I’m Tanzeela! 🌱
 
 Student @ University of Houston
 
